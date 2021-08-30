@@ -10,4 +10,4 @@ Creators: https://github.com/xenofon23 , https://github.com/PolihronisVarvaris ,
  
 Thank you for your time. 
 
-Email: gtiritidis@gmail.com
+Email: pantsosxen23@gmail.com
